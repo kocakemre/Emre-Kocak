@@ -13,7 +13,7 @@
 
 * 🕵️‍♂️ I’m currently learning everything 🔎
 
-* 📝 I regularly write articles on medium [medium]
+* 📝 I regularly write articles on [medium]
 
 * 📫 How to reach me m.emrekocakk@gmail.com
 
